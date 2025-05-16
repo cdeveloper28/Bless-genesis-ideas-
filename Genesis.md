@@ -6,7 +6,7 @@ can only build. Feel free to explore more ideas in the AI niche. Other ideas are
 
 stated below. Also make use of chatbots if you can't get a good idea - to get
 
-inspo for something spectacular.
+inspo for something spectacular spread your wings sow, fly.
 
 6. Resume Tailor (AI Resume Optimizer)
 
